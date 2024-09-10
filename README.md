@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **AI_ML & Data Science**
 
-- 📫 How to reach me **ahbiraj.kumar2300@gamil.com**
+- 📫 How to reach me **abhiraj.kumar2300@gamil.com**
 
 - ⚡ Fun fact **I think I am funny**
 
